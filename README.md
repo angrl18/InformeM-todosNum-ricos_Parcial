@@ -1,0 +1,1 @@
+# InformeM-todosNum-ricos_Parcial
